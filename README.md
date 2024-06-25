@@ -1,2 +1,0 @@
-# sansur.github.io
-Sansur
